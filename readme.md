@@ -1,1 +1,1 @@
-my medium bolgs
+my medium blogs
